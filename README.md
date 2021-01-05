@@ -1,1 +1,1 @@
-# Qu-n-L-Game-B-n-Quy-n-
+# Quản Lý Game Bản Quyền
